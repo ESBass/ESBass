@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ESBass, though I go by Liz
+- 👋 Hi, I’m @ESBass (Elizabeth), though I go by Liz
 - 👀 I’m interested in computers, linguistics, media, and science.
 - 🌱 I’m currently studying Lingustics as a science.
 - 💞️ I’m looking to collaborate on ...
